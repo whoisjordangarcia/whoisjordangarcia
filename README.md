@@ -1,5 +1,5 @@
 # Hi there! I'm Jordan 👋
-I'm a software engineer that's passionate about building things, being part of the open source community, and enjoys good food.
+I'm a software engineer who's passionate about building things
 
 Currently living Miami, Florida.
 
