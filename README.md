@@ -5,5 +5,5 @@ Currently living Miami, Florida.
 
 🔭 - I’m currently working at [@labcorp](https://www.labcorp.com/)<br/>
 💬 - Ask me about anything!<br/>
-📫 - How to reach me: arickho@gmail.com<br/>
+📫 - How to reach me: hello@jordangarcia.me<br/>
 🌏 - Visit https://jordangarcia.me/<br/>
